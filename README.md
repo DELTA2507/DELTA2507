@@ -1,5 +1,5 @@
 # Hi I'm Joseph Ugalde :wave:
-
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/J7N6224Z9A)
 
 ![LinkedinBanner](https://github.com/user-attachments/assets/b8041d0a-0b76-4b05-91e8-fc0fab90e55a) <!-- BANNER -->
 
